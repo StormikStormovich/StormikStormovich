@@ -10,4 +10,10 @@ This account is for my ponytown acc. Most of my ponies are roblox games cosplays
 
 I mostly sit in the trees, at the lake in MD area and a little bit at AvM area near library. I like c+h a lot bro, same with touching and kissing random people who's cos I like. Same with interacting, I like interacting a lot (unless it's stated otherwise.) I'm mostly sitting in one area, so, uh, I've kinda seen some ppl around there.
 
+I don't think I'm the funniest or smartest cookie there but I listen well.
+
+*Kisses you on forehead platonically and runs away*
+
+Art credits: Me :3
+
 (some ppl followed me, woah..)
