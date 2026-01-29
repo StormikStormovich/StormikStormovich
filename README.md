@@ -17,3 +17,5 @@ I don't think I'm the funniest or smartest cookie there but I listen well.
 Art credits: Me :3
 
 (some ppl followed me, woah..)
+
+throws beer at nyako and cig at milk, while chewing uranium and drinking acid
