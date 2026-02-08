@@ -19,4 +19,5 @@ Art credits: Me :3
 (some ppl followed me, woah..)
 
 throws beer at nyako and cig at milk, while chewing uranium and drinking acid
+
 milky, milky... throws more random stuff at you
