@@ -21,3 +21,5 @@ Art credits: Me :3
 throws beer at nyako and cig at milk, while chewing uranium and drinking acid
 
 milky, milky... throws more random stuff at you
+
+star is green and stinky... heh.
