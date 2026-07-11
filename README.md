@@ -1,27 +1,21 @@
-Hi!
+Name: Stormiks Stormikov Stormikovich the First, also known as Stormi. Often using my sona, the Sun Priest.
 
-Name's Storm. I don't really care how do u call me tho.
+Language: RU/ENG
 
-I talk on both Russian and English. I can sometimes mess up some stuff on accident, sorry for any misunderstandings.
+Mostly s-nv and/or offtab, watching yt and making ponies.
 
-Most of my fandoms are written in my Tumblr. (don't mind me not posting for a long time, I'm lazy.) I like Ultrakill, plspls Ultrakill fans int, same for MD and AvM
+Fandoms I'm currently active in: Ultrakill, Forsaken, DOD (a little bit), roblox psychological horrors/stories (bad things, duality, jim's computer, dex's party, adam and liam, drawnout, the moon i rot behind, happy world with happy people, let him go, a nostalgic hangout game and a couple of more..), blocktales, pressure, grace, sfawtde/dawtde, rochas313, animal hospital, blocktales again bcuz i love blocktales
 
-This account is for my ponytown acc. Most of my ponies are roblox games cosplays, except for MD, AvM and Ultrakill
+This account is for my ponytown acc only.
 
-I mostly sit in the trees, at the lake in MD area and a little bit at AvM area near library. I like c+h a lot bro, same with touching and kissing random people who's cos I like. Same with interacting, I like interacting a lot (unless it's stated otherwise.) I'm mostly sitting in one area, so, uh, I've kinda seen some ppl around there.
+I interact a lot (unless it's stated otherwise.)
 
-I don't think I'm the funniest or smartest cookie there but I listen well. I tend to worry too much over nothing, srry gng. Mostly s-nv and/or offtab unless I'm with my friends.
+Pfp credits: Sun Priest.... heh....
 
-*Kisses you on forehead platonically and runs away*
+HONORABLE MENTION:
 
-Art credits: Me :3
+@everlastingsunshine hi mother, when dad is going to be sober...
 
-(some ppl followed me, woah..)
+@Bowzfyboo hi sibling (farting bowser gif)
 
-throws beer at nyako and cig at milk, while chewing uranium and drinking acid
-
-milky, milky... throws more random stuff at you
-
-star is green and stinky... heh.
-
-sullyismymomyayayayayyayaayayayexplodesfromjoy
+@SillyPizza hi Angie pleading emoji pleading emoji
