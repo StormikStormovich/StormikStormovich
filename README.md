@@ -11,11 +11,3 @@ This account is for my ponytown acc only.
 I interact a lot (unless it's stated otherwise.)
 
 Pfp credits: Sun Priest.... heh....
-
-HONORABLE MENTION:
-
-@everlastingsunshine hi mother, when dad is going to be sober...
-
-@Bowzfyboo hi sibling (farting bowser gif)
-
-@SillyPizza hi Angie pleading emoji pleading emoji
