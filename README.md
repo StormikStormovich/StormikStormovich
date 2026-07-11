@@ -11,3 +11,5 @@ This account is for my ponytown acc only.
 I interact a lot (unless it's stated otherwise.)
 
 Pfp credits: Sun Priest.... heh....
+
+IF YOU ARE INTERESTED IN PIZZAPUNCH (Elliot x Guest1337 ship) AND YOU WANT TO JOIN OUR PIZZAPUNCH SERVER, PLEASE CONTACT ME VIA DM IN DISCORD (I'll give you a link..)
